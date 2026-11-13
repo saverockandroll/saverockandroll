@@ -1,6 +1,9 @@
+<p align="center">
+<img width="400" height="220" alt="fobyayy" src="https://github.com/user-attachments/assets/8ea1bb53-a005-4746-a805-d190e938323b" />
+
 <div align="center"> 
   
-  ![](https://komarev.com/ghpvc/?username=kadeauberon&color=yellow&style=plastic&label=starfighters)
+hi interact pls i love talking 2 people ,, c+h very welcomed
 
 <p align="center">
   <a href="https://github.com/kittinan/spotify-github-profile">
@@ -8,8 +11,3 @@
   </a>
 </p>
 
-<p align="center">
-<img width="400" height="400" alt="STARSHIP p" src="https://github.com/user-attachments/assets/9e895f83-4278-4ce2-b9d6-dcd92cded2df" />
-
-<div align="center"> 
-ceo of grace/kade idk what their ship name is... my art oki
